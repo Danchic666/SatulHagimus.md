@@ -1,2 +1,2 @@
 # SatulHagimus.md
-Site despre cel mai minunat sat di Republica Moldova - Satul Hagimus
+Site despre cel mai minunat sat din Republica Moldova - Satul Hagimus
